@@ -1,1 +1,1 @@
-I am not good at writing code and using English.The guy who loving play games about pixel.
+我不擅长写代码和使用英语。只是一个喜欢玩像素游戏的人。
