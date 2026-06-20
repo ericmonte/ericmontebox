@@ -1,1 +1,1 @@
-This is the falder about unturned maps.
+This is the folder about unturned maps.
